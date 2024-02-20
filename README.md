@@ -1,2 +1,3 @@
-# HBDJEYAA
-special ini mah buat kamu asli ga di buat buat
+# happy-Birthday-wishes-card-project-
+
+Free to use you can just copy code and use your own way.
